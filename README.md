@@ -1,0 +1,2 @@
+# premium-open-die-001-open-die-forging-free-form-m
+Tired of losing track of custom forging projects buried in sticky notes and scattered spreadsheets? Stop juggling chaotic material lists and client specs—your open-die forge deserves a system as precise as your hammer.  This Notion template transforms your metal craft studio into a lean, organized powerhouse. It centralizes every job from initial c
